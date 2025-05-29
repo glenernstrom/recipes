@@ -1,1 +1,2 @@
-Mash several avacados. 
+1. Mash several avacados.
+2. Mix in lime juice. 
